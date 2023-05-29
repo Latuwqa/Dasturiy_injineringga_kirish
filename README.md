@@ -1,0 +1,1 @@
+# Dasturiy_injineringga_kirish
